@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Alberto 
-- 👀 I’m interested in solar enerfy
+- 👀 I’m interested in solar energy
 - 🌱 I’m currently learning crypto 
 - 💞️ I’m looking to collaborate on crypto for New tecnólogy 
 - 📫 How to reach me albertomaraujo@yahoo.com.br
